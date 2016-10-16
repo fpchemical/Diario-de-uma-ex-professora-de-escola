@@ -40,6 +40,6 @@ Daquele dia em diante, esse aluno em todas as minhas aulas levava sua carteira n
 
 Claro que eu fui elogiar seu comportamento e perguntei o que tinha acontecido de bom que o motivou daquele jeito. 
 
-Sabe qual foi a resposta dele?
+**Sabe qual foi a resposta dele?** 
 
 > Professora, nunca nenhuma professora me elogiou para a minha mãe.
