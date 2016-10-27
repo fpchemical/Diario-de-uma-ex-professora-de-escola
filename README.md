@@ -12,7 +12,7 @@ Instigar a curiosidade nos nossos jovens é a chave para o sucesso da educação
 
 Essa vontade deve partir do aluno e isso só acontece quando o aluno enxerga a aplicabilidade do conhecimento adquirido e o quanto isso pode transformar a sua vida.
 
-**O que vivenciei me fez amar ser professora!!!**
+## O que vivenciei me fez amar ser professora!!!
 
 ![Amo Química](http://redes.moderna.com.br/wp-content/uploads/2011/06/Quimica_amor.jpg)
 
