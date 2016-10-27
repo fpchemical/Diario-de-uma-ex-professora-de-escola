@@ -1,4 +1,4 @@
-##QUEBRANDO AS BARREIRAS DA DEFICIÊNCIA COGNITIVA
+## Quebrando as barreiras da deficiência cognitiva
 
 No meu segundo ano como professora fui regente de uma turma de 1º ano de Ensino Médio e enfrentei dificuldades no cotidiano das aulas, pois um dos alunos apresentava deficiência cognitiva. As crianças com atraso cognitivo podem precisar de mais tempo para aprender a falar, a caminhar e a aprender as competências necessárias para cuidar de si, tal como vestir-se ou comer com autonomia e consequentemente terão dificuldades na escola. 
 
