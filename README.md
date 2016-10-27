@@ -1,5 +1,7 @@
 # Diário de uma ex-professora de escola
 
+![Classe](https://userscontent2.emaze.com/images/1b418360-13b8-4e96-bc4d-2af191d568bd/06f4e652-aa6f-4f3f-8555-952d82e2ba17.png)
+
 Nesse diário vou escrever algumas histórias que aconteceram comigo durante o tempo que dei aula em escolas, essas experiências foram muito importantes para o meu crescimento pessoal como pessoa e professora, pois serviram para me mostrar que a educação é a base da sociedade e que o professor tem muito impacto na formação dos alunos. 
 
 Cabe a nós professores nos dedicarmos na ação pedagógica que nos é ensinada na graduação de Licenciatura, independente a matéria que se leciona, vamos tentar enxergar os diferentes tipos de alunos que temos e que vamos ter e respeitar as suas diferenças. Cada um é especial do seu jeito e cada um aprende de um jeito diferente. 
