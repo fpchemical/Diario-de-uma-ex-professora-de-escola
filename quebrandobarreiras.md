@@ -12,8 +12,10 @@ Um certo dia eu levei artigos do Química Nova na Escola com assuntos variados, 
 
 Ao término da formação dos grupos e da entrega dos artigos eu fui até ele e ofereci um artigo, que eu já havia separado especialmente para ele, pois eu tinha certeza que ele se interessaria pelo assunto. Perguntei novamente se ele queria participar ele respondeu que não, então eu falei:
 
-- A profe trouxe um artigo especialmente pra vc, tenho ctz que vc vai gostar. É sobre o Nióbio, vc sabe o que é?
--Não sei o que é professora.
+> A profe trouxe um artigo especialmente pra vc, tenho ctz que vc vai gostar. É sobre o Nióbio, vc sabe o que é?
+
+
+> Não sei o que é professora.
 
 Então dei uma breve explicação sobre o Nióbio, de como fazem a extração desse metal aqui no Brasil e o quanto de dinheiro ganham com isso. Ele se levantou e foi procurar o metal na tabela periódica. Eu perguntei denovo se ele queria fazer o trabalho, ele respondeu que sim, mas queria apresentar sozinho.
 
