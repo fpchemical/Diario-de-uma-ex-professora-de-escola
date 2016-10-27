@@ -31,7 +31,7 @@ Eu apliquei em todas as minhas turmas, foram um total de 18 turmas em dois anos 
 Eles ficavam em silêncio sem eu ter que falar uma palavra, a turma vai se acalmando pouco a pouco até que todos param de falar e o silêncio reina!!!!
 
 
-**Sabendo disso professores, lhes proponho um desafio!!**
+## Sabendo disso professores, lhes proponho um desafio!!
 
 Apliquem a técnica com suas turmas e contem seus resultados aqui, será muito interessante essa prova de conceito!!! 
 
