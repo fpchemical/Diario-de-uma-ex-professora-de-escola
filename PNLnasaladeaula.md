@@ -1,6 +1,6 @@
 # Usando a Programação Neurolinguística (PNL) na Sala de Aula 
 
-![PNL](https://efectosagasta.files.wordpress.com/2015/02/neuromarketing-14.jpg)
+![PNL](http://1.bp.blogspot.com/-cGCDaSZY-W4/VWolHM-c9tI/AAAAAAAAAEk/wmTAAmnd8Do/s1600/cerebro.png)
 
 Umas das matérias do meu primeiro semestre na faculdade foi Fundamentos da Aprendizagem com o professor Jair Passos, tínhamos quatro aulas na semana, nas duas primeiras aulas o professor ensinava neurociência, em poucas palavras: a química das sinapses que ocorrem nos neurônios. Nas outras duas aulas da semana ele ensinava a psicologia envolvida nas sinapses e as teorias cognitivas da aprendizagem.
 
