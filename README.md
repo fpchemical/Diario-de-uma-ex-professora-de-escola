@@ -9,3 +9,8 @@ Criar a empatia nos nossos jovens é a chave para o sucesso da educação, eles 
 A motivação vem de dentro quando o aluno enxerga a importância do aprender e o quanto isso pode mudar a vida dele. 
 
 Aqui vou tentar contar para vocês um pouco do que vivenciei e o que me fez amar ser professora!! 
+
+## Histórias
+
+- [Conquistando um aluno rebelde e desinteressado](https://github.com/fpchemical/DIARIO-DE-UMA-EX-PROFESSORA-DE-ESCOLA/blob/master/conquistandoumalunorebelde.md)
+- [Quebrando as barreiras da deficiência cognitiva](https://github.com/fpchemical/DIARIO-DE-UMA-EX-PROFESSORA-DE-ESCOLA/blob/master/quebrandobarreiras.md)
