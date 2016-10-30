@@ -30,5 +30,5 @@ Imagina se esse aluno é assaltado, é ferido ou manda tudo a merda e vai pra lo
 
 Essa é a triste realidade das nossas escolas, nunca imaginei que veria um aluno pulando o muro para DENTRO da escola para estudar e ser impedido disso!! 
 
-Revoltante!! 
+###Revoltante!! 
 
