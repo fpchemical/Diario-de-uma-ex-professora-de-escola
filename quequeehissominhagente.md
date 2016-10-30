@@ -22,7 +22,7 @@ O diretor mandou ele esperar do lado de fora da secretaria para assinar uma adve
 
 Minutos depois vem o diretor com a advertência, o menino assinou e o diretor ordenou que ele se retirasse da escola e que não se repetisse mais aquilo, porque já era a segunda vez na semana que ele chegava atrasado e tentava entrar para estudar.
 
-Simmmm minha gente, o menino estava gazeando ao contrário!! ahsuhahsuahsu
+> Simmmm minha gente, o menino estava gazeando ao contrário!! ahsuhahsuahsu
 
 É engraçado, eu brinco, porque sou palhaça, mas isso é uma situação muito triste, onde temos uma pessoa na gestão de um colégio que prefere mandar o aluno voltar pra casa ao acolhê-lo na escola.
 
