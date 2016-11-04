@@ -1,4 +1,6 @@
-###Deu a louca na profe!!
+### Deu a louca na profe!!
+
+![crazy](http://i.giphy.com/l3vRbHWi5mCq63pJK.gif)
 
 Como professora que defende um modelo de ensino baseado na aprendizagem-significativa é claro que eu me sentia oprimida aplicando as provas reprodutivistas que são cobradas pelo sistema de educação.
 
