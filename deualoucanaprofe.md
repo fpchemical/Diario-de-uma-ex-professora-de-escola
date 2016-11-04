@@ -36,9 +36,7 @@ Eis a minha explicação dada para a minha aluna:
 
 >\-Quando corrijo os exercícios vcs conseguem observar em qual parte que vcs erraram, essa obsevação do erro faz com que vcs realmente entendem e compreendam o conteúdo promovendo uma aprendizagem significativa.
 
-Na aprendizagem significativa uma nova informação interage com uma informação pré-existente causando uma modificação significativa no indivíduo
-
-
+> Na aprendizagem significativa uma nova informação interage com uma informação pré-existente causando uma modificação significativa no indivíduo
 
 
 
