@@ -1,4 +1,6 @@
-###Deu a louca na profe!!
+### Deu a louca na profe!!
+
+![crazy](http://i.giphy.com/l3vRbHWi5mCq63pJK.gif)
 
 Como professora que defende um modelo de ensino baseado na aprendizagem-significativa é claro que eu me sentia oprimida aplicando as provas reprodutivistas que são cobradas pelo sistema de educação.
 
@@ -32,11 +34,13 @@ Eis a minha explicação dada para a minha aluna:
 
 >\-Pois bem, se eu corrigir a prova antes de vcs entregarem TODOS IRÃO PRESTAR A MÁXIMA ATENÇÃO, mas só pq vcs querem tirar 10, e é aí que a profe consegue ensinar vcs de verdade.
 
->\-Mas como profe?
+>\-Professora vc ficou louca? 
 
 >\-Quando corrijo os exercícios vcs conseguem observar em qual parte que vcs erraram, essa obsevação do erro faz com que vcs realmente entendem e compreendam o conteúdo promovendo uma aprendizagem significativa.
 
-> Na aprendizagem significativa uma nova informação interage com uma informação pré-existente causando uma modificação significativa no indivíduo
+
+
+**Na aprendizagem significativa uma nova informação interage com uma informação pré-existente causando uma modificação significativa no indivíduo**
 
 
 
