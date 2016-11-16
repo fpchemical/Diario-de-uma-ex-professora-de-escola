@@ -14,7 +14,7 @@ Aqui vai uma breve explicação: PNL siginifica programação neurolinguística,
 
 No âmbito educacional: 
 
-"A PNL é uma ferramenta educacional, não uma forma de terapia. Nós ensinamos as pessoas coisas sobre como seus cérebros funcionam e elas usam estas informações para mudar." Richard Bandler.
+> "A PNL é uma ferramenta educacional, não uma forma de terapia. Nós ensinamos as pessoas coisas sobre como seus cérebros funcionam e elas usam estas informações para mudar." Richard Bandler.
 
 Caso queira saber mais acesse o site www.golfinho.com.br
 
