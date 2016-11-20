@@ -7,7 +7,7 @@ Eu explico!
 Na faculdade temos as matérias de humanas que são de suma importância para nós professores, nelas aprendemos um pouco de metodologias de ensino, didática em sala de aula, pedagogia, psicologia e até mesmo Libras (super legal) e são essas matérias que nos preparam para o cotidiano em sala de aula.  
 
 
-**Aqui nessa história quero passar aos leitores a sensação de ser professora de alunos especiais e o quanto é maravilhoso poder fazer parte do aprendizado deles. Contarei sobre uma aluna com dificuldades para se socializar.**
+**Nessa história quero passar aos leitores a sensação de ser professora de alunos especiais e o quanto é maravilhoso poder fazer parte do aprendizado deles e também o quanto é difícil cumprir o papel de profe. Contarei sobre uma aluna com dificuldades para se socializar.**
 
 
 Ao assumirmos as aulas dos colégios no início do ano não sambemos quantos alunos vamos ter e nem o perfil desses alunos. Nos dois anos que lecionei eu tive a oportunidade de ter uma aluna surda (agradeço as aulas de Libras que me ajudaram muito na comunicação com ela, mesmo tendo intérprete), uma aluna cega e um aluno com deficiência cognitiva (já escrevi sobre ele), todos eles muito inteligentes e que me ensinaram muito, mesmo sem saber!! 
