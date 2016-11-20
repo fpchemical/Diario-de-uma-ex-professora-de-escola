@@ -20,9 +20,10 @@ Eu exageradamente coloquei as mãos na cabeça, fiz uma cara de espanto e disse:
 
 >\-FUME E COPIE PIÁ!! 
 
+![que susto](https://cinemaedebate.files.wordpress.com/2010/02/espanto.jpg)
+
 Adivinhem? Copiou tudinho!!
 
 
-**Me julguem!!!!**
-
+### ME JULGUEM!!
 
