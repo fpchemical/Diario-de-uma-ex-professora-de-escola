@@ -24,9 +24,9 @@ Eu já sabia quando que chamava o nome dela na chamada eu tinha que olhar para e
 
 Quando eu estava explicando, e nessas horas você passa os olhos nos alunos para fazer contato visual, eu percebia de canto de olho que ela estava me olhando, então eu fazia contato visual, no mesmo momento ela desviava o olhar. Eu sou um frustrada porque não consegui fazer com que ela falasse comigo nem sequer uma vez. 
 
-Vocês devem estar se perguntando qual foi minha atitude?  
+Aposto que vcs querem saber qual foi minha atitude?  
 
-Fui até a pedagoga perguntar: ela me contou que a aluna se comporta assim há bastante tempo e que a escola tem dificuldade em convencer os pais a autorizarem um encaminhamento psicológico. 
+Fui até a pedagoga perguntar sobre a aluna e ela me contou que essa aluna se comporta assim há bastante tempo, mas a escola tem dificuldade em convencer os pais a autorizarem um encaminhamento psicológico. 
 
 Gente, vocês não fazem ideia de quantos alunos precisam de ajuda médica e os pais não aceitam e o quanto isso prejudica essas crianças!!!! 
 
