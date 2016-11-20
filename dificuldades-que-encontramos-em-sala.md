@@ -2,9 +2,9 @@
 
 Ser professor é uma experiência muito gratificante a nível pessoal, pois os momentos que passamos em sala de aula com os alunos são lições para uma vida, mas infelizmente nem tudo são flores para todo mundo.
 
-> Eu explico!
+> **Eu explico!**
 
-Na faculdade temos as matérias de humanas que são de suma importância para nós professores, nelas aprendemos um pouco de metodologias de ensino, didática em sala de aula, pedagogia, psicologia e até mesmo Libras (super legal) e são essas matérias que nos preparam para o cotidiano em sala de aula.  
+Na faculdade temos as matérias de humanas que são de suma importância para nós professores, nelas aprendemos um pouco de metodologias de ensino, didática em sala de aula, pedagogia, psicologia e até mesmo [Libras](https://pt.wikipedia.org/wiki/L%C3%ADngua_brasileira_de_sinais) (super legal) e são essas matérias que nos preparam para o cotidiano em sala de aula.  
 
 
 **Nessa história quero passar aos leitores a sensação de ser professora de alunos especiais e o quanto é maravilhoso poder fazer parte do aprendizado deles e também o quanto é difícil cumprir o papel de profe. Contarei sobre uma aluna com dificuldades para se socializar.**
