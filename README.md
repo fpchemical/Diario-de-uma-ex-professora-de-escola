@@ -22,3 +22,4 @@ Essa vontade deve partir do aluno e isso só acontece quando o aluno enxerga a a
 - [Quebrando as barreiras da deficiência cognitiva](https://github.com/fpchemical/DIARIO-DE-UMA-EX-PROFESSORA-DE-ESCOLA/blob/master/quebrandobarreiras.md)
 - [Usando a Programação Neurolinguística (PNL) na Sala de Aula](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/PNLnasaladeaula.md)
 - [Morro e não vejo tudo!!](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/quequeehissominhagente.md)
+- [dificuldades-que-encontramos-em-sala](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/dificuldades-que-encontramos-em-sala.md)
