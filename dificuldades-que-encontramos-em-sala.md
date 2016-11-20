@@ -18,7 +18,9 @@ Agora imagine você como professor nos primeiros anos de aula, sem experiência 
 > Para mim, a grande dificuldade era ter a certeza de que eu estava fazendo um trabalho correto e responsável com meus aluninhos!!
 
 
-O cotidiano das aulas muda obviamente e eu precisava explicar de maneiras diferentes o conteúdo para poder alcançar meus aluninhos. A aluna que mais tive dificuldade foi uma aluna de 1º Ano que em hipótese alguma falava comigo, juro para vocês, eu NUNCA ouvi a voz dela!! :( :( :(
+O cotidiano das aulas muda obviamente e eu precisava explicar de maneiras diferentes o conteúdo para poder alcançar meus aluninhos. A aluna que mais tive dificuldade foi uma aluna de 1º Ano que em hipótese alguma falava comigo, juro para vocês, eu NUNCA ouvi a voz dela!!
+
+[triste](http://i.giphy.com/H9nnXKNfa5wf6.gif)
 
 Eu já sabia quando que chamava o nome dela na chamada eu tinha que olhar para ela para sinalizar que havia visto ela e que daria presença. Ela tinha sérios problemas para se comunicar. 
 
