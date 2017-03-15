@@ -18,7 +18,7 @@ Nisso um aluno gritou:
 
 Eu exageradamente coloquei as mãos na cabeça, fiz uma cara de espanto e disse:
 
->\-FUME E COPIE PIÁ!! 
+>\-EU NÃO ACREDITO QUE VC NÃO SABE FAZER DUAS COISAS AO MESMO TEMPO!! FUME E COPIE PIÁ!! 
 
 ![que susto](https://cinemaedebate.files.wordpress.com/2010/02/espanto.jpg)
 
