@@ -18,8 +18,8 @@ Essa vontade deve partir do aluno e isso só acontece quando o aluno enxerga a a
 
 ## Histórias
 
-- [Conquistando um aluno rebelde e desinteressado](https://github.com/fpchemical/DIARIO-DE-UMA-EX-PROFESSORA-DE-ESCOLA/blob/master/conquistandoumalunorebelde.md)
-- [Quebrando as barreiras da deficiência cognitiva](https://github.com/fpchemical/DIARIO-DE-UMA-EX-PROFESSORA-DE-ESCOLA/blob/master/quebrandobarreiras.md)
-- [Usando a Programação Neurolinguística (PNL) na Sala de Aula](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/PNLnasaladeaula.md)
+- [Conquistando um aluno rebelde e desinteressado](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/conquistando-um-aluno-rebelde.md)
+- [Quebrando as barreiras da deficiência cognitiva](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/quebrando-barreiras.md)
+- [Usando a Programação Neurolinguística (PNL) na Sala de Aula](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/PNL-na-sala-de-aula.md)
 - [Morro e não vejo tudo!!](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/quequeehissominhagente.md)
 - [Dificuldades-que-encontramos-em-sala](https://github.com/fpchemical/Diario-de-uma-ex-professora-de-escola/blob/master/dificuldades-que-encontramos-em-sala.md)
